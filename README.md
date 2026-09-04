@@ -13,4 +13,4 @@ play alone it game is so bad.
 you need a friend because
 you'll be able to play with
 him one by one and who can
-reach a number, him is win
+reach a number first, that is win
